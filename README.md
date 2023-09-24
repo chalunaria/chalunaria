@@ -1,3 +1,4 @@
+![IMG_9596](https://github.com/chalunaria/chalunaria/assets/145884556/56a9c113-fa83-478e-bb3a-38f90c9f4e62)
 NOTES:
 
 This account is for roleplaying purposes only. 🌷 I am not affiliated with the real Janae Roberts. I do OC blogging. I do not intend to ruin her image nor career. 🗣️
